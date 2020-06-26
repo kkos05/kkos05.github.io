@@ -10,3 +10,5 @@ Pocahontas is a 1995 American animated musical romantic drama film loosely based
 She said:
 > If you walk the footsteps of a stranger,
 > you'll learn things you never knew you never knew
+
+<img src="https://vignette.wikia.nocookie.net/disney-fan-fiction/images/4/46/Ct_video_princess_pocahontas_ddt-16771_469528ef.jpeg/revision/latest/scale-to-width-down/340?cb=20190302000128"/>
