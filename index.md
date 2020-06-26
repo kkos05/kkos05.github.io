@@ -6,3 +6,7 @@ Pocahontas is a 1995 American animated musical romantic drama film loosely based
 * has a racoon and a humming-bird as friends
 * has beautiful long black hair
 * is very curious and brave
+
+She said:
+> If you walk the footsteps of a stranger,
+> you'll learn things you never knew you never knew
